@@ -1,1 +1,1 @@
-### Hi there <br><br> My name is Few, an AI freelancer 👋
+### Hi there <br><br> My name is Few, I identified myself as builder 👋
